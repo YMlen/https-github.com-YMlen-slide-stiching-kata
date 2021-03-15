@@ -1,0 +1,1 @@
+# https-github.com-YMlen-slide-stiching-kata
